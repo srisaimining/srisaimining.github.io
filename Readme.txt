@@ -1,6 +1,3 @@
-Thanks for downloading this template!
-
-Template Name: Gp
-Template URL: https://bootstrapmade.com/gp-free-multipurpose-html-bootstrap-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+INDCORE Mining SARL - Sustainable Manganese Mining in Ivory Coast
+INDCORE Mining SARL specializes in manganese mining in Ivory Coast, leveraging over three decades of expertise from our Indian partner. Established in 2023, we aim to contribute to sustainable growth in the mining sector.
+INDCORE Mining SARL, manganese mining, mining in Ivory Coast, sustainable mining, mineral resources, Yamoussoukro mining, mining companies, African minerals
